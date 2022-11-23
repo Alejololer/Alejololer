@@ -70,7 +70,625 @@ PROPIEDAD/ATRIBUTO--> P= tiene un:
                    }
     ```
     
-     
+     No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+No sé si alguien más ha experimentado esto, pero últimamente he estado haciendo ruidos de Clash Royale en situaciones de la vida real, y la mitad del tiempo ni siquiera me doy cuenta de que lo estoy haciendo.
+
+La mayoría de las veces, cuando escucho una broma graciosa, reacciono con" ¡Jijijija!" y ni siquiera me he dado cuenta de que lo he estado haciendo hasta que un amigo me lo señaló. Tambien me occurrio algo similar hace un par de semanas cuando mi novia me llamó con una noticia triste y todo lo que pude decir fue "Boo joo joo jooey." A veces, cuando algo me enoja durante el día, solo digo "¡Grrr!" Y de nuevo, no lo he notado hasta que mi amigo me lo señaló.
+
+¿Alguien más ha experimentado esto? ¿Me estoy volviendo loco? ¿Necesito tomarme un descanso del juego?
+
+
     
                     
                     
