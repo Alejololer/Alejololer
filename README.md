@@ -8,7 +8,7 @@
 
 ---
 
-## <picture><img src="https://media.giphy.com/media/jpVnC65DmYeyRL4LHS/giphy.gif" width="50px"></picture> **About Me**
+## **About Me**
 
 <picture>
   <img align="right" src="https://media.giphy.com/media/ZVik7pBtu9dNS/giphy.gif" width="250px">
