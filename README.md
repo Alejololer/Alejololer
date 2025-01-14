@@ -11,7 +11,7 @@
 ## **About Me**
 
 <picture>
-  <img align="right" src="https://media.giphy.com/media/ZVik7pBtu9dNS/giphy.gif" width="250px">
+  <img align="right" src="https://user-images.githubusercontent.com/74038190/213910842-5a320d6b-e48f-4d41-a901-0e6a357e8dae.gif" width="250px">
 </picture>
 
 - 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.
