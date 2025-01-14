@@ -10,21 +10,14 @@
 
 ## **About Me**
 
-<div style="display: flex; align-items: center; justify-content: space-between;">
-  <!-- Texto -->
-  <div style="flex: 1; padding-right: 20px;">
-    - 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.<br>
-    - 🎓 Currently studying **Software Engineering** at Escuela Politécnica Nacional.<br>
-    - 💻 Skilled in **Angular**, **.NET**, **Flutter**, **SQL**, and more!<br>
-    - 📚 Always learning: exploring **LeetCode** and diving into new technologies.<br>
-    - 🌟 Open to new opportunities: <a href="https://alejololer.github.io/">Check out my resume here!</a>
-  </div>
+<img src="https://github.com/Alejololer/Alejololer/blob/main/octocat-1736885972207.png?raw=true" alt="Octocat" width="160px" align="right">
 
-  <!-- Imagen -->
-  <div style="flex-shrink: 0; margin-left: 20px;">
-    <img src="https://github.com/Alejololer/Alejololer/blob/main/octocat-1736885972207.png?raw=true" alt="Octocat" width="150px" style="border-radius: 10px;">
-  </div>
-</div>
+- 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.
+- 🎓 Currently studying **Software Engineering** at Escuela Politécnica Nacional.
+- 💻 Skilled in **Angular**, **.NET**, **Flutter**, **SQL**, and more!
+- 📚 Always learning: exploring **LeetCode** and diving into new technologies.
+- 🌟 Open to new opportunities: [Check out my resume here!](https://alejololer.github.io/)
+
 
 ---
 
