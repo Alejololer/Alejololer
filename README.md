@@ -10,15 +10,21 @@
 
 ## **About Me**
 
-<picture>
-  <img align="right" src="https://private-user-images.githubusercontent.com/74038190/238353480-219bcc70-f5dc-466b-9a60-29653d8e8433.gif?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MzY4NzUzNDAsIm5iZiI6MTczNjg3NTA0MCwicGF0aCI6Ii83NDAzODE5MC8yMzgzNTM0ODAtMjE5YmNjNzAtZjVkYy00NjZiLTlhNjAtMjk2NTNkOGU4NDMzLmdpZj9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNTAxMTQlMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjUwMTE0VDE3MTcyMFomWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPTQzMDdlMjUxZDc0OGNmMjY4ZDY1YTBiNTIzMzI4NjQ1MGFlYTdkNmFhYWM2ZWQ5N2Y0ZjQxMTE1MTUxMjg4MDkmWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0In0._vN2nFdixRM8YdoivY4xxTsTmt5-K02y-dXTBet3TY8" width="180px">
-</picture>
+<div style="display: flex; align-items: center; justify-content: space-between;">
+  <!-- Texto -->
+  <div style="flex: 1; padding-right: 20px;">
+    - 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.<br>
+    - 🎓 Currently studying **Software Engineering** at Escuela Politécnica Nacional.<br>
+    - 💻 Skilled in **Angular**, **.NET**, **Flutter**, **SQL**, and more!<br>
+    - 📚 Always learning: exploring **LeetCode** and diving into new technologies.<br>
+    - 🌟 Open to new opportunities: <a href="https://alejololer.github.io/">Check out my resume here!</a>
+  </div>
 
-- 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.
-- 🎓 Currently studying **Software Engineering** at Escuela Politécnica Nacional.
-- 💻 Skilled in **Angular**, **.NET**, **Flutter**, **SQL**, and more!
-- 📚 Always learning: exploring **LeetCode** and diving into new technologies.
-- 🌟 Open to new opportunities: [Check out my resume here!](https://alejololer.github.io/)
+  <!-- Imagen -->
+  <div style="flex-shrink: 0; margin-left: 20px;">
+    <img src="https://github.com/Alejololer/Alejololer/blob/main/octocat-1736885972207.png?raw=true" alt="Octocat" width="150px" style="border-radius: 10px;">
+  </div>
+</div>
 
 ---
 
