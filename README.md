@@ -92,5 +92,5 @@
 ---
 
 <div align="center">
-  <p>Credits: <a href="https://github.com/0xabdulkhalid">Abdul Khalid</a></p>
+  <p>Credits for the template: <a href="https://github.com/0xabdulkhalid">Abdul Khalid</a></p>
 </div>
