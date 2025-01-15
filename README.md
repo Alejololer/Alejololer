@@ -56,8 +56,8 @@
 ---
 
 ## 🌟 **Hobbies**
-- 🎧 Audiophile: I enjoy exploring new genres and listening to music in high-quality sound systems.
 - 🎮 Playing video games (huge fan of strategy and adventure games).
+- 🎧 Jamming to different music genres and enjoying crisp, high-quality sound.
 - 📖 Reading tech blogs and exploring innovations in the software world.
 
 ---
