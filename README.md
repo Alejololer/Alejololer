@@ -2,9 +2,10 @@
 
 <p align="center">
   <a href="https://github.com/DenverCoder1/readme-typing-svg">
-    <img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Full-Stack+Developer+%F0%9F%94%A7;Software+Engineering+Student+%F0%9F%A7%91%E2%80%8D%F0%9F%92%BB;Tech+Enthusiast+%F0%9F%9A%80;Always+Learning+New+Skills+%F0%9F%93%9A">
+    <img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Full-Stack+Developer+%F0%9F%94%A7;Software+Engineering+Student+%F0%9F%A7%91%E2%80%8D%F0%9F%92%BB;Tech+Enthusiast+%F0%9F%9A%80;Audiophile+and+Music+Lover+%F0%9F%8E%A7%F0%9F%8E%B5;Always+Learning+New+Skills+%F0%9F%93%9A;">
   </a>
 </p>
+
 
 ---
 
