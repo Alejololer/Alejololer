@@ -56,7 +56,7 @@
 ---
 
 ## 🌟 **Hobbies**
-- 🎮 Playing video games (huge fan of strategy and adventure games).
+- 🎮 Playing video games (huge fan of FPS and RPG games).
 - 🎧 Jamming to different music genres and enjoying crisp, high-quality sound.
 - 📖 Reading tech blogs and exploring innovations in the software world.
 
