@@ -95,8 +95,12 @@
 
 ---
 
+
+![snake gif](https://github.com/Alejololer/Alejololer/blob/output/github-snake-dark.svg)
+
+---
+
+
 <div align="center">
   <p>Credits for the template: <a href="https://github.com/0xabdulkhalid">Abdul Khalid</a></p>
 </div>
-
-![snake gif](https://github.com/Alejololer/Alejololer/blob/output/github-snake-dark.svg)
