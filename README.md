@@ -59,6 +59,7 @@
 - 🎮 Playing video games (huge fan of FPS and RPG games).
 - 🎧 Jamming to different music genres and enjoying crisp, high-quality sound.
 - 📖 Reading tech blogs and exploring innovations in the software world.
+- 🥅 Playing as a goalie in football (RIP my glasses 👓).
 
 ---
 
