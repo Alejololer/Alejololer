@@ -6,7 +6,7 @@
   </a>
 </p>
 
-## 🎧 Now Playing on Last.fm
+## 🎧 Now Playing
 
 <p align="center">
   <a href="https://www.last.fm/user/Alejololer">
