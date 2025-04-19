@@ -24,7 +24,7 @@
 - 🎓 Software Engineering @ Escuela Politécnica Nacional.
 - 🧠 Angular • .NET • Flutter • SQL • and still growing.
 - 📚 Problem solving on LeetCode, vibing with innovation.
-- 💼 [My resume is ready for your eyes](https://alejololer.github.io/)
+- 💼 [My CV is ready for your eyes](https://alejololer.github.io/)
 
 ---
 
