@@ -6,19 +6,25 @@
   </a>
 </p>
 
+## 🎧 Now Playing on Last.fm
+
+<p align="center">
+  <a href="https://www.last.fm/user/Alejololer">
+    <img src="https://lastfm-recently-played.vercel.app/api?user=Alejololer&count=1&gradient=true&background=090024&border_radius=10px&color=ff8cfc" alt="Carlos' Last.fm Now Playing" />
+  </a>
+</p>
 
 ---
 
-## **About Me**
+## 💫 About Me
 
 <img src="https://github.com/Alejololer/Alejololer/blob/main/octocat-1736885972207.png?raw=true" alt="Octocat" width="160px" align="right">
 
-- 🌟 A passionate Full-Stack Developer with a love for building scalable, innovative software.
-- 🎓 Currently studying **Software Engineering** at Escuela Politécnica Nacional.
-- 💻 Skilled in **Angular**, **.NET**, **Flutter**, **SQL**, and more!
-- 📚 Always learning: exploring **LeetCode** and diving into new technologies.
-- 🌟 Open to new opportunities: [Check out my resume here!](https://alejololer.github.io/)
-
+- 💻 Full-Stack Developer with an eye for detail and a love for design.
+- 🎓 Software Engineering @ Escuela Politécnica Nacional.
+- 🧠 Angular • .NET • Flutter • SQL • and still growing.
+- 📚 Problem solving on LeetCode, vibing with innovation.
+- 💼 [My resume is ready for your eyes](https://alejololer.github.io/)
 
 ---
 
@@ -59,7 +65,14 @@
 - 🎮 Playing video games (huge fan of FPS and RPG games).
 - 🎧 Jamming to different music genres and enjoying crisp, high-quality sound.
 - 📖 Reading tech blogs and exploring innovations in the software world.
-- 🥅 Playing as a goalie in football (RIP my glasses 👓).
+- ⚽ Football goalie (still dodging stray shots to the face)  
+
+---
+
+## 🌌 Philosophy Corner
+
+> *"The struggle itself toward the heights is enough to fill a man's heart. One must imagine Sisyphus happy."*  
+> — Albert Camus, *The Myth of Sisyphus*
 
 ---
 
