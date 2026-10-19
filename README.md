@@ -29,7 +29,7 @@
 - 🎓 Software Engineering @ Escuela Politécnica Nacional (final semester!).
 - 🧠 Django • Next.js • Angular • .NET • Flutter • SQL • and still growing.
 - 📚 Problem solving on LeetCode, vibing with innovation.
-- 💼 [My CV is ready for your eyes](https://alejololer.github.io/)
+- 💼 [My site (and CV) is ready for your eyes](https://alejololer.is-a.dev)
 
 ---
 
