@@ -1,97 +1,58 @@
-name: GitHub Snake Game
-
-
+name: Profile cards
 
 on:
-
-  # Schedule the workflow to run daily at midnight UTC
-
   schedule:
-
     - cron: "0 0 * * *"
-
-
-
-  # Allow manual triggering of the workflow
-
   workflow_dispatch:
-
-
-
-  # Trigger the workflow on pushes to the main branch
-
   push:
-
     branches:
-
       - main
 
-
-
 jobs:
-
   generate:
-
     runs-on: ubuntu-latest
-
     timeout-minutes: 10
-
-
+    permissions:
+      contents: write
 
     steps:
+      - uses: actions/checkout@v4
 
-      # Step 1: Checkout the repository
-
-      - name: Checkout Repository
-
-        uses: actions/checkout@v3
-
-
-
-      # Step 2: Generate the snake animations
-
-      - name: Generate GitHub Contributions Snake Animations
-
+      # Monochrome palette from alejololer.is-a.dev (first dot color = empty cell)
+      - name: Snake
         uses: Platane/snk@v3
-
         with:
-
-          # GitHub username to generate the animation for
-
           github_user_name: ${{ github.repository_owner }}
-
-
-
-          # Define the output files and their configurations
-
           outputs: |
-
-            dist/github-snake.svg
-
-            dist/github-snake-dark.svg?palette=github-dark
-
-            dist/ocean.gif?color_snake=orange&color_dots=#bfd6f6,#8dbdff,#64a1f4,#4b91f1,#3c7dd9
-
+            dist/github-snake-dark.svg?color_snake=#ffffff&color_dots=#161616,#3a3a3a,#6b6b6b,#a3a3a3,#e8e8e8
+            dist/github-snake.svg?color_snake=#000000&color_dots=#ebebeb,#c2c2c2,#8c8c8c,#555555,#161616
         env:
-
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
 
-
-
-      # Step 3: Deploy the generated files to the 'output' branch
-
-      - name: Deploy to Output Branch
-
-        uses: peaceiris/actions-gh-pages@v3
-
+      # Self-generated cards: the public github-readme-stats instances rate-limit and die.
+      # Add a PAT as secret STATS_PAT (repo + read:user) to include private contributions.
+      - name: Stats card
+        uses: stats-organization/github-readme-stats-action@v2
         with:
+          card: stats
+          options: username=${{ github.repository_owner }}&show_icons=true&include_all_commits=true&count_private=true&line_height=24&bg_color=000000&title_color=ffffff&icon_color=ffffff&text_color=e8e8e8&ring_color=ffffff&border_color=ffffff&border_radius=0
+          path: dist/stats.svg
+          token: ${{ secrets.STATS_PAT || secrets.GITHUB_TOKEN }}
+          fail_on_error: true
 
+      - name: Top languages card
+        uses: stats-organization/github-readme-stats-action@v2
+        with:
+          card: top-langs
+          options: username=${{ github.repository_owner }}&layout=compact&langs_count=8&bg_color=000000&title_color=ffffff&text_color=e8e8e8&border_color=ffffff&border_radius=0
+          path: dist/top-langs.svg
+          token: ${{ secrets.STATS_PAT || secrets.GITHUB_TOKEN }}
+          fail_on_error: true
+
+      - name: Deploy to output branch
+        uses: peaceiris/actions-gh-pages@v4
+        with:
           github_token: ${{ secrets.GITHUB_TOKEN }}
-
           publish_dir: ./dist
-
           publish_branch: output
-
-          # Optionally, you can set a custom commit message
-
-          commit_message: "Update snake animation [skip ci]"
+          commit_message: "Update profile cards [skip ci]"
