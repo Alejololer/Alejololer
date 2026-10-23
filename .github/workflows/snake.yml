@@ -16,18 +16,7 @@ jobs:
       contents: write
 
     steps:
-      - uses: actions/checkout@v4
-
-      # Monochrome palette from alejololer.is-a.dev (first dot color = empty cell)
-      - name: Snake
-        uses: Platane/snk@v3
-        with:
-          github_user_name: ${{ github.repository_owner }}
-          outputs: |
-            dist/github-snake-dark.svg?color_snake=#ffffff&color_dots=#161616,#3a3a3a,#6b6b6b,#a3a3a3,#e8e8e8
-            dist/github-snake.svg?color_snake=#000000&color_dots=#ebebeb,#c2c2c2,#8c8c8c,#555555,#161616
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      - uses: actions/checkout@v5
 
       # Self-generated cards: the public github-readme-stats instances rate-limit and die.
       # Add a PAT as secret STATS_PAT (repo + read:user) to include private contributions.
@@ -48,6 +37,18 @@ jobs:
           path: dist/top-langs.svg
           token: ${{ secrets.STATS_PAT || secrets.GITHUB_TOKEN }}
           fail_on_error: true
+
+      # snk runs in Docker as root and leaves dist/ root-owned, so it goes after the stats cards.
+      # Monochrome palette from alejololer.is-a.dev (first dot color = empty cell)
+      - name: Snake
+        uses: Platane/snk@v3
+        with:
+          github_user_name: ${{ github.repository_owner }}
+          outputs: |
+            dist/github-snake-dark.svg?color_snake=#ffffff&color_dots=#161616,#3a3a3a,#6b6b6b,#a3a3a3,#e8e8e8
+            dist/github-snake.svg?color_snake=#000000&color_dots=#ebebeb,#c2c2c2,#8c8c8c,#555555,#161616
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
 
       - name: Deploy to output branch
         uses: peaceiris/actions-gh-pages@v4
