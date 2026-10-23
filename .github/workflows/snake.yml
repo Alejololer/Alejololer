@@ -33,7 +33,7 @@ jobs:
         uses: stats-organization/github-readme-stats-action@v2
         with:
           card: top-langs
-          options: username=${{ github.repository_owner }}&layout=compact&langs_count=8&bg_color=000000&title_color=ffffff&text_color=e8e8e8&border_color=ffffff&border_radius=0
+          options: username=${{ github.repository_owner }}&layout=compact&langs_count=8&hide=jupyter%20notebook,html&bg_color=000000&title_color=ffffff&text_color=e8e8e8&border_color=ffffff&border_radius=0
           path: dist/top-langs.svg
           token: ${{ secrets.STATS_PAT || secrets.GITHUB_TOKEN }}
           fail_on_error: true
